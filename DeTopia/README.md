@@ -1,2 +1,0 @@
-# DeTopia
-Micronazione Digitale   
